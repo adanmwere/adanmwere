@@ -3,6 +3,7 @@
 
 
 
+
 &nbsp;<div align="center">
- [![Visits](https://komarev.com/ghpvc/?username=adanmwere&logo=GitHub&label=ㅤㅤㅤㅤㅤㅤ%20ㅤㅤㅤㅤㅤㅤㅤ&color=FFFFFF&logoColor=FFFFFF&style=flat-square)](https://github.com/adanmwere)
+ [![Visits](https://komarev.com/ghpvc/?username=adanmwere&logo=GitHub&label=ㅤㅤfriends%20ㅤㅤ&color=000000&logoColor=FFFFFF&style=plastic)](https://github.com/adanmwere)
 </div>
