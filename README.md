@@ -1,8 +1,9 @@
 
 &nbsp;<div align="center">
-I love you Dr. Jason Bull
+Jesus christ, who are you? What have you sacrificed? 
 &nbsp;<div align="center">
-![Bull - Apple TV](https://github.com/user-attachments/assets/3a8e6936-3ae9-496c-b304-8c0a22b27eb7)
+![download](https://github.com/user-attachments/assets/02ccb54a-7bd1-4450-aad6-79bf14a97205)
+
 
 
 
