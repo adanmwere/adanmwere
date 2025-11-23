@@ -1,7 +1,7 @@
 
 
 
-<p align="center"> ${\textsf{\color{#6F4342}"Jesus christ, who are you? What have you sacrificed?"}}$
+<p align="center"> ${\textsf{\color{#6F4342}"Jesus christ, Jesus Christ, who are you? What have you sacrificed?"}}$
  
 &nbsp;<div align="center">
 ![download](https://github.com/user-attachments/assets/02ccb54a-7bd1-4450-aad6-79bf14a97205)
