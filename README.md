@@ -1,10 +1,11 @@
 
 
 
-<p align="center"> ${\textsf{\color{#6F4342}"Jesus christ, Jesus Christ, who are you? What have you sacrificed?"}}$
+<p align="center"> ${\textsf{\color{#6F4342}"Just getting into arcane"}}$
  
 &nbsp;<div align="center">
-![download](https://github.com/user-attachments/assets/02ccb54a-7bd1-4450-aad6-79bf14a97205)
+![download](https://github.com/user-attachments/assets/d8f271f8-7557-4d09-9328-e8416a4efd71)
+
 
 
 
