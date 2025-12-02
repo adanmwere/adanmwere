@@ -10,5 +10,5 @@
 
 
 &nbsp;<div align="center">
- [![Visits](https://komarev.com/ghpvc/?username=adanmwere&logo=GitHub&label=ㅤㅤfreshㅤmeat%20ㅤㅤ&color=673B3C&logoColor=142A28&style=plastic)](https://github.com/adanmwere)
+ [![Visits](https://komarev.com/ghpvc/?username=adanmwere&logo=GitHub&label=ㅤㅤㅤㅤ✧࿐ㅤ﹑ㅤㅤ%20ㅤㅤ&color=673B3C&logoColor=142A28&style=plastic)](https://github.com/adanmwere)
 </div>
