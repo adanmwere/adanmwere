@@ -5,7 +5,7 @@
 &nbsp;<div align="center">
 ![download](https://github.com/user-attachments/assets/3a72f8a0-f125-4030-9a36-a06ccc52a839)
 
-<p align="center"> ${\textsf{\color{#311738}Just getting into arcane :p}}$
+<p align="center"> ${\textsf{\color{#311738}very socially awkward in new fandomsㅤㅤㅤㅤㅤc+h almost always encouraged}}$
 
 
 
