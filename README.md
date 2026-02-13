@@ -3,9 +3,9 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [![Typing SVG](https://readme-typing-svg.demolab.com?font=Explora&size=43&pause=200&color=9473A562&width=435&lines=There++is++beauty++in++imperfections+;They++made++you++who++you++are++)](https://git.io/typing-svg)
 &nbsp;<div align="center">
-![download](https://github.com/user-attachments/assets/3a72f8a0-f125-4030-9a36-a06ccc52a839)
+![download (1)](https://github.com/user-attachments/assets/d6ff60ee-598d-4089-8112-898ad39b08f1)
 
-<p align="center"> ${\textsf{\color{#311738}very socially awkward in new fandomsㅤㅤㅤㅤㅤc+h almost always encouraged}}$
+<p align="center"> ${\textsf{\color{#311738}very socially awkward at timesㅤㅤㅤㅤㅤc+h almost always encouraged}}$
 
 
 
