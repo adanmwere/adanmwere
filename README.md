@@ -1,8 +1,8 @@
 
 
 
-
-![Uploading download.gif…]()
+&nbsp;<div align="center">
+![#crk #whitelilycookie #cookierun #cookierunkingdom #cookierungifs #crkgifs](https://github.com/user-attachments/assets/491d6513-4f8f-4830-b9b3-9464663a0d40)
 
 
 <p align="center"> ${\textsf{\color{#C7B395}very socially awkward at timesㅤㅤㅤㅤㅤc+h almost always encouraged}}$
